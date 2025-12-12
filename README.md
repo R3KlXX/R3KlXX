@@ -14,7 +14,7 @@
 
 
 <img width="517" height="131" alt="Screenshot 2025-12-11 212105" src="https://github.com/user-attachments/assets/cd22e5a0-7ef4-4bd6-b0e2-5c59e01fc452" />
-<p>all i seen was sacrificial and me saying i got tea LMAO<p>
+<p>all i seen was sacrifical and me saying i got tea LMAO<p>
 
 <!--
 **R3KlXX/R3KlXX** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
