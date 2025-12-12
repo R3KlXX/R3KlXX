@@ -7,7 +7,8 @@
 
 
 
-
+![493873fa6ca245a0d0d1ca7df4178aa2](https://github.com/user-attachments/assets/99977f5f-5e74-4807-a43a-a5486e4e3b4e)
+<p>me when no yaoi : "((( /j </p>
 
 
 
