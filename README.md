@@ -13,7 +13,8 @@
 <p>me when no yaoi : "((( /j </p>
 
 
-
+<img width="517" height="131" alt="Screenshot 2025-12-11 212105" src="https://github.com/user-attachments/assets/cd22e5a0-7ef4-4bd6-b0e2-5c59e01fc452" />
+all i seen was sacrificial and me saying i got tea LMAO   
 
 <!--
 **R3KlXX/R3KlXX** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
