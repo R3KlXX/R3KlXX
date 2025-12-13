@@ -1,5 +1,6 @@
 <p>my favorite omfs: Frizzy, Sleepy, Alim, Switz, Lynx, Moya, Yuu, Davidd, Len, Hannie/june, Seth, Saii ,Sunsets, Shiyu/Ivan <33 :")</p>
 
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31rrdzbdbefic5svinp4qzl44hmm&cover_image=true&theme=natemoo-re&show_offline=true&background_color=d01616&interchange=true&profanity=false&bar_color=5a0202&bar_color_cover=true)](https://spotify-github-profile.kittinanx.com/api/view?uid=31rrdzbdbefic5svinp4qzl44hmm&redirect=true)
 
 ![3ea3039e5abcf4d5d6ec5fe2f837160d](https://github.com/user-attachments/assets/10914fdc-abef-46cb-8565-ca298623528c)
