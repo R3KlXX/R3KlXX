@@ -18,3 +18,5 @@
 
 <img width="300" height="400" alt="Screenshot 2025-12-11 212105" src="https://github.com/user-attachments/assets/445ffe5d-a1c7-4b86-9a29-0b62ea928ac6" />
 <p>WONDERFUL SHIYU !!!</p>
+
+https://patreon.com/T0MZ_?utm_medium=unknown&utm_source=join_link&utm_campaign=creatorshare_creator&utm_content=copyLink 
