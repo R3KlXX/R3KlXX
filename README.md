@@ -1,6 +1,6 @@
-<p>my favorite omfs: Frizzy, Sleepy, Alim, Switz, Lynx, Moya, Yuu, Davidd, Len, Hannie/june, Seth, Saii ,Sunsets, Shiyu/Ivan, yari <33 :")</p>
+
+<img width="400" height="400" alt="Screenshot 2025-12-11 212105" src="https://i.pinimg.com/736x/14/57/32/145732146d6892f86f5c30cfb90aa857.jpg" />
+<p>𝒶𝓇𝓉𝒾𝓈𝓉: 𝙯𝙚𝙥𝙝𝙮𝙧𝙞𝙣𝙚_𝙜𝙖𝙡𝙚 </p>
 
 
-
-<img width="300" height="400" alt="Screenshot 2025-12-11 212105" src="https://github.com/user-attachments/assets/445ffe5d-a1c7-4b86-9a29-0b62ea928ac6" />
-<p>WONDERFUL SHIYU !!!</p>
+<p>ᴍʏ ꜰᴀᴠᴏʀɪᴛᴇ ᴏᴍꜰꜱ: ꜰʀɪᴢᴢʏ, ꜱʟᴇᴇᴘʏ, ᴀʟɪᴍ, ꜱᴡɪᴛᴢ, ʟʏɴx, ᴍᴏʏᴀ, ʏᴜᴜ, ᴅᴀᴠɪᴅᴅ, ʟᴇɴ, ʜᴀɴɴɪᴇ/ᴊᴜɴᴇ, ꜱᴇᴛʜ, ꜱᴀɪɪ ,ꜱᴜɴꜱᴇᴛꜱ, ꜱʜɪʏᴜ/ɪᴠᴀɴ, ʏᴀʀɪ <33 :")</p>
